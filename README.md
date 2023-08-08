@@ -5,4 +5,4 @@
 # MainScreen
 # Country Trip plan details - 3 Screens
 
-# Indhu Rali - 3 years IT
+# KARPURAM NARAYANA DURGA CHARAN - 3 YEAR-IT
